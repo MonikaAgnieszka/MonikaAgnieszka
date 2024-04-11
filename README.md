@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MonikaAgnieszka
 - 👀 I’m interested in ancient history and sf
 - 🌱 I’m currently learning coding 🤞🏻
-- 📫 How to reach me: What'sApp and email
+- 📫 How to reach me: social media and email
 - ⚡ Fun fact: I love 🦊🦊
 
 <!---
