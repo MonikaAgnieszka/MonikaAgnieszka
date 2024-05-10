@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MonikaAgnieszka
 - 👀 I’m interested in Ancient History, AI and s/f
-- 🌱 I’m currently learning coding at Le Wagon🤞🏻
+- 🌱 I’m currently learning to code. 🤞🏻
 - 📫 How to reach me: Gmail
 - ⚡ Fun fact: I love 🦊🦊🦊
 <!---
